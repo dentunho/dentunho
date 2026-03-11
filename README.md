@@ -1,4 +1,8 @@
 
+  ![Image Alt](https://github.com/dentunho/dentunho/blob/ea4b97a498f6fa80094e4f366bcfafcb2be92e5b/HC8NQxMaUAAzK9h.jpg).
+
+ 
+ ![Image Alt](https://github.com/dentunho/dentunho/blob/ed633cb8d44e976b4af0768a5d80e290ec37974b/ChatGPT%20Image%20Mar%2011%2C%202026%2C%2001_57_02%20PM.png).
 
 ## Hi there 👋
 # 💫 About Me:
